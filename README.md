@@ -1,1 +1,0 @@
-# Infytq_Assignments
